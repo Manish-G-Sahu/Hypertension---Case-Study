@@ -1,1 +1,1 @@
-# Hypertension---Case-Study
+# Hypertension:Case-Study
